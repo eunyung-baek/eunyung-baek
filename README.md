@@ -2,6 +2,6 @@
   eunyung fanatic
 </p>
 <p align="center">
-  he/him
+  empl*yed
 </p>
 
