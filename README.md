@@ -1,3 +1,3 @@
 <p align="center">
-  eunyung fanatic
+  eunyung who?
 </p>
