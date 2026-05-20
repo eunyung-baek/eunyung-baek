@@ -18,3 +18,5 @@ https://github.com/user-attachments/assets/0343c9a2-e67d-4edd-ade2-6abda96bb84f
 </p>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤ
+<img width="1604" height="720" alt="1000013546" src="https://github.com/user-attachments/assets/7f1987b3-fb5c-4c19-b4ed-7ba17b7774d6" />
+played it eith my eyes clsoed ( yes i memorized the whole chart its literally my most favorite song ever
