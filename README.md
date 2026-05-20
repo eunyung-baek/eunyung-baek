@@ -1,6 +1,10 @@
-<p align="center">
-  <img src="https://file.garden/aPuRwU9PkXWKuLo6/1000013316-removebg-preview__fliter--sepia__channel--red__mode--normal.png"
-</p>
+
+
+
+https://github.com/user-attachments/assets/ae15f337-f83c-4cbb-b6b5-1f42caaa875a
+
+
+
 <p align="center">
   ▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇▇SUPPORT YOUR LOCAL BAKAS😭😭😭❤️❤️❤️(eunyung and cirno)▇▇▇▇▇▇▇▇▇▇▇▇
 </p>
