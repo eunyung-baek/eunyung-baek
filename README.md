@@ -1,1 +1,3 @@
-<img width="736" height="1104" alt="1000014450" src="https://github.com/user-attachments/assets/60629fee-7244-4787-9a90-237288e6973c" />
+<img width="720" height="871" alt="1000014694" src="https://github.com/user-attachments/assets/27cbc565-c137-44d8-9257-724cdc91b5b0" />
+
+# YOOO WHAT KINDA FISH IS THAT😂😂😂😂
