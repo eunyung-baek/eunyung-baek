@@ -4,6 +4,6 @@
 
 
 
+# ADD MY DISCORD
+<img width="720" height="328" alt="1000014871" src="https://github.com/user-attachments/assets/fc023863-3a9b-4cf1-9574-d8577231b91e" />
 
-<img width="1604" height="720" alt="1000014804" src="https://github.com/user-attachments/assets/d69722a0-8dd0-46d5-a311-6532b2ffc120" />
-FUCK YOU COLPAL
