@@ -3,5 +3,7 @@
 # YOOO WHAT KINDA FISH IS THAT😂😂😂😂
 
 
-<img width="1275" height="709" alt="image" src="https://github.com/user-attachments/assets/36a9c39c-24ae-4598-a57b-1be6dd372111" />
-im sorry if i don't respond becaus this is what i d when im bored om n pt💔💔💔💔just jkidding. im provabably offtab scrolling on pinterest ors omething.
+
+
+<img width="1604" height="720" alt="1000014804" src="https://github.com/user-attachments/assets/d69722a0-8dd0-46d5-a311-6532b2ffc120" />
+FUCK YOU COLPAL
