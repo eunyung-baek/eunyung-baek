@@ -1,6 +1,5 @@
-<p align="center">
- <img src="https://files.catbox.moe/za9dqx.png">
-</p>
+<img width="407" height="269" alt="Screenshot 2026-06-14 203120" src="https://github.com/user-attachments/assets/93f07f7f-fb91-4130-a181-ff0ec2298910" />
+
 
 ㅤ
 ㅤ
