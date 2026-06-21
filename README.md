@@ -32,7 +32,7 @@
 ㅤ
 
 ㅤ
-me and [val](https://github.com/Iostsorrows)
+me (r.) and [val](https://github.com/Iostsorrows) (l.) 
 ㅤ
 ㅤ
 ㅤ
