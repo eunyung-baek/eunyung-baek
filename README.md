@@ -32,21 +32,9 @@
 ㅤ
 
 ㅤ
-<p align="center">
-<ins> me lov haejoon.probably eunyung irl dont say otherwise </ins>
-</p>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+me and [val](https://github.com/Iostsorrows)
+ㅤ
 ㅤ
 ㅤ
 
-ㅤ
-ㅤ
-
-ㅤ
-
-ㅤ
-ㅤ
-
-ㅤ
-ㅤ
-ㅤ
+<img width="541" height="326" alt="Screenshot 2026-06-20 223918" src="https://github.com/user-attachments/assets/1be7bde2-bfa6-4d65-b4ef-440e340f673b" />
