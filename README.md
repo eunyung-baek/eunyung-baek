@@ -32,7 +32,7 @@
 ㅤ
 
 ㅤ
-me (r.) and [val](https://github.com/Iostsorrows) (l.) 
+val is a poopy butt
 ㅤ
 ㅤ
 ㅤ
